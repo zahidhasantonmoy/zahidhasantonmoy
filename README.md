@@ -24,7 +24,7 @@ I'm a passionate Full-Stack Developer with a knack for building responsive, user
 
 
 
-Email: zahidhasantonmoy@gmail.com
+Email: zahidhasantonmoy360@gmail.com
 
 
 
